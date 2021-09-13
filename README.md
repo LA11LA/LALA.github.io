@@ -1,1 +1,1 @@
-# LALA.github.io
+Map of my Favorite Destionations
